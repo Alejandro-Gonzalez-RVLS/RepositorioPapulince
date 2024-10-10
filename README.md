@@ -28,9 +28,10 @@ El anterior Jefe de grupo
 Lograr todo lo que me propongo
 Destacar en lo que yo quiera
 Etc×1000
+
 Casa:
-Grande
-Elegante y 
+Elegante y Grande
+
 Easter Egg:
 Guapo, poderoso, asombroso
 Muy hermoso, soy precioso, armonioso
