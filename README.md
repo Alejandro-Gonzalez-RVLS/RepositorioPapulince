@@ -1,11 +1,11 @@
 # RepositorioPapulince
 Si
 
-Me gusta la polla
+Me gusta la noche
 Me gusta jugar videojuegos
 Me gusta escuchar musica
 Me encanta jugar :)
-Me gusta el Futbol Americano
+*TEAM FRIO*
 
 Guapo, poderoso, asombroso
 Muy hermoso, soy precioso, armonioso
